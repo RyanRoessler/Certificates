@@ -1,1 +1,1 @@
-# Certifications and Certificates
+# Certificates
